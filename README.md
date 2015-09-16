@@ -1,1 +1,1 @@
-# Hello，EveryOne ~
+# Hello，everyone ~
